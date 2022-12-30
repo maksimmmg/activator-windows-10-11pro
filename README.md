@@ -1,1 +1,1 @@
-# activator-windows-10-11pro
+# https://sites.google.com/view/activatorwin/основа-сайта
